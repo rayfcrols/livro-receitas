@@ -9,3 +9,4 @@ Quem num gosta di mim que vai caçá sua turmis! Em pé sem cair, deitado sem do
 - Strogonoff de Frango
 - Pavê
 - Pão de Alho
+- Fricasse
